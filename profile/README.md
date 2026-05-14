@@ -2,4 +2,4 @@
 
 您好，有点急事需要找您，抱歉打扰，麻烦您同意一下，我好跟您说。
 
-请同意邀请后见[这里](https://github.com/mai-front-group/work_resp/issues/5)，非常感谢！
+同意邀请后请见[这里](https://github.com/orgs/mai-front-group/discussions/6)查看详情，非常感谢！
